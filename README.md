@@ -1,0 +1,1 @@
+# diskrit-sifat-sifat-relasi
